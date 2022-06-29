@@ -48,6 +48,7 @@ Police from Texas are most at risk by gunfire
 September has the highest number of recorded death cases from 1791
 
 The day with the most recoreded police death is Saturday with the leading digure of 4,070.
+
 -------
 
 # RECOMMENDATION
